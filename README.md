@@ -1,1 +1,0 @@
-# knightrial.github.io
